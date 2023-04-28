@@ -1,2 +1,2 @@
-# nabinkarki.info.np
+# Nabin Karki
 nabinkarki.info.np
